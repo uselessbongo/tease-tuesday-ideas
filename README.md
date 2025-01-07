@@ -75,10 +75,11 @@ Blindfolding and or lightly restraining LP can be useful for the following tease
 ### General Teasing
 
 * LP is allowed to full body worship KH (kissing,touching,massaging)
-* Timeout - LP gets tied up, blindfolded, gagged
+* Timeout - LP gets tied up and/or blindfolded and/or gagged
    * Tied to bed
    * Chair
    * Closet
+   * Doorframe
 
 ## Funishment or Punishment
 
