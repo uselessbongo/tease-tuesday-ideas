@@ -19,6 +19,7 @@ Teases where the focus is on the KH and her pleasure.
 * KH wears something sexy but no touching allowed except foot and leg rubs
    * Satin slip nighty
    * Leather dress or skirt
+      * Could even blindfold LP for this as a major tease
 * Use dildo on KH
 * Use vibrator on KH
 * KH sits in wand chair
