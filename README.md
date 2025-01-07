@@ -15,6 +15,7 @@ Teases where the focus is on the KH and her pleasure.
 * Oral Sex for KH
    * Going down on KH
    * KH on top straddling face (queening)
+   * KH instructs LP exactly how she likes oral (training)
 * Give attention to KH breasts and nipples
 * KH wears something sexy but no touching allowed except foot and leg rubs
    * Satin slip nighty, Leather dress or skirt
