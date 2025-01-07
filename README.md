@@ -24,6 +24,7 @@ Teases where the focus is on the KH and her pleasure.
 * KH sits in wand chair
 * Watch KH use vibrator or dildo
 * Intercourse - KH rides LP (This is probably a better Freaky Friday activity)
+* LP Wears a Dildo Harness and stays locked (Freaky Friday)
 
 ## Teasing Locked Partner (LP)
 
