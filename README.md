@@ -60,9 +60,13 @@ Blindfolding and or lightly restraining the LP can be useful for the following t
 
 ### General Teasing
 
-* LP gets a tied up timeout
+* Timeout - LP gets tied up, blindfolded, gagged
+   * Tied to bed
+   * Chair
+   * Closet
 
 ## Funishment or Punishment
 
 * Light bottom Spanking with various implements
-* Nipple play pinching
+* Light balls spanking
+* Nipple pinching
