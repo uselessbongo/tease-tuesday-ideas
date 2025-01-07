@@ -44,7 +44,8 @@ Blindfolding and or lightly restraining the LP can be useful for the following t
 
 * Caged unit and balls teasing
    * Hands
-   * Gloves
+   * Leather Gloves
+ * Feather tease
  * Vibrator on cage and balls
  * Play with nipples
  * Prostate Massage (Might be better as Freaky Friday)
