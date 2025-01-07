@@ -7,13 +7,18 @@ The idea is these teases should either be KH focused or require minimal effort o
 
 ## Keyholder (KH) Focused Teases
 
+Teases where the focus is on the KH and her pleasure.
+
 * Give KH Full body massage
    * Naked
-   * Wear something sexy
+   * Wear something sexy!!
 * Oral Sex for KH
    * Going down on KH
    * KH on top straddling face (queening)
 * Give attention to KH breasts and nipples
+* KH wears something sexy but no touching allowed except Footrubs
+   * Satin slip nighty
+   * Leather dress or skirt
 * Use dildo on KH
 * Use vibrator on KH
 * KH sits in wand chair
@@ -40,6 +45,7 @@ Blindfolding and or lightly restraining the LP can be useful for the following t
    * Hands
    * Gloves
  * Vibrator on cage and balls
+ * Play with nipples
  * Prostate Massage (Might be better as Freaky Friday)
 
 #### Cage Off
@@ -59,6 +65,7 @@ Blindfolding and or lightly restraining the LP can be useful for the following t
    * Titty Humps
 
 ### General Teasing
+
 
 * Timeout - LP gets tied up, blindfolded, gagged
    * Tied to bed
