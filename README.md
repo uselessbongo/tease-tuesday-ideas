@@ -1,6 +1,6 @@
 # Tease Tuesday Ideas
 
-Each week it's important that the Keyholder (LH) unlocks the Locked Partner (LP) for some grooming, cleaning and inspection for any discomfort or other issues.
+Each week it's important that the Keyholder (KH) unlocks the Locked Partner (LP) for some grooming, cleaning and inspection for any discomfort or other issues.
 
 This is a good scheduled time to perform some weekly teasing activities to keep the LP's libido high and excited.
 The idea is these teases should either be KH focused or require minimal effort or duration for the KH.
@@ -17,6 +17,7 @@ Teases where the focus is on the KH and her pleasure.
    * KH on top straddling face (queening)
    * KH instructs LP exactly how she likes oral (training)
 * Give attention to KH breasts and nipples
+* Old fashioned makeout session
 * KH wears something sexy but no touching allowed except foot and leg rubs
    * Satin slip nighty, Leather dress or skirt
    * KH could blindfold LP so he can't even see her dressed
