@@ -52,6 +52,7 @@ Blindfolding and or lightly restraining the LP can be useful for the following t
 
 * Unlocked Handjob teasing
    * lubricated
+   * lubed exam glove
    * leather gloves
    * silk scarf
    * panties
@@ -66,13 +67,14 @@ Blindfolding and or lightly restraining the LP can be useful for the following t
 
 ### General Teasing
 
-
 * Timeout - LP gets tied up, blindfolded, gagged
    * Tied to bed
    * Chair
    * Closet
 
 ## Funishment or Punishment
+
+These can be used to mix things up, or if LP has an accidental orgasm at any point, or doesn't follow rules.
 
 * Light bottom Spanking with various implements
 * Light balls spanking
