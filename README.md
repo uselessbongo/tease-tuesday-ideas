@@ -38,7 +38,7 @@ KH can even watch TV or scroll phone during these activities.
 
 The following teases involve pleasuring the LP and getting him close to orgasm.
 
-Blindfolding and or lightly restraining the LP can be useful for the following teases.
+Blindfolding and or lightly restraining LP can be useful for the following teases.
 
 #### Cage On
 
@@ -49,6 +49,8 @@ Blindfolding and or lightly restraining the LP can be useful for the following t
  * Vibrator on cage and balls
  * Play with nipples
  * Prostate Massage (Might be better as Freaky Friday)
+   * prostate massager
+   * exam glove finger
 
 #### Cage Off
 
@@ -58,6 +60,7 @@ Blindfolding and or lightly restraining the LP can be useful for the following t
    * leather gloves
    * silk scarf
    * panties
+   * LP wears condom
  * Masturbation sleeve (fleshlight)
  * Vibrator on balls
  * Blowjob tease
@@ -66,6 +69,7 @@ Blindfolding and or lightly restraining the LP can be useful for the following t
    * Leg Humps
    * Boots Humps
    * Titty Humps
+ * LP licking pre-cum from teasing
 
 ### General Teasing
 
@@ -78,6 +82,7 @@ Blindfolding and or lightly restraining the LP can be useful for the following t
 
 These can be used to mix things up, or if LP has an accidental orgasm at any point, or doesn't follow rules.
 
-* Light bottom Spanking with various implements
+* Light impact play / spanking
+   * implements: crop / flogger / hand
 * Light balls spanking
 * Nipple pinching
