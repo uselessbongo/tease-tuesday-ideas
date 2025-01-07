@@ -27,6 +27,7 @@ Teases where the focus is on the KH and her pleasure.
 * Watch KH use vibrator or dildo
 * Intercourse - KH rides LP (This is probably a better Freaky Friday activity)
 * LP Wears a Dildo Harness and stays locked (Freaky Friday)
+* KH wants LP to dominate her (Freaky Friday)
 
 ## Teasing Locked Partner (LP)
 
@@ -58,7 +59,7 @@ Blindfolding and or lightly restraining LP can be useful for the following tease
 
 * Unlocked Handjob teasing
    * lubricated
-   * lubed exam glove
+   * lubed nitrite exam glove
    * leather gloves
    * silk scarf
    * panties
@@ -76,11 +77,13 @@ Blindfolding and or lightly restraining LP can be useful for the following tease
 ### General Teasing
 
 * LP is allowed to full body worship KH (kissing,touching,massaging)
+   * worship legs/boots
+   * worship hands/leather gloves
 * Timeout - LP gets tied up and/or blindfolded and/or gagged
    * Tied to bed
    * Chair
    * Closet
-   * Doorframe
+   * suspended Doorframe
 
 ## Funishment or Punishment
 
@@ -88,5 +91,5 @@ These can be used to mix things up, or if LP has an accidental orgasm at any poi
 
 * Light impact play / spanking
    * implements: crop / flogger / hand
-* Light balls spanking
+* Light ball spanking
 * Nipple pinching
