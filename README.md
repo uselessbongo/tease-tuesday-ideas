@@ -17,6 +17,7 @@ Teases where the focus is on the KH and her pleasure.
    * KH on top straddling face (queening)
    * KH instructs LP exactly how she likes oral (training)
 * Give attention to KH breasts and nipples
+* KH grinds and dry humps LP
 * Old fashioned makeout session
 * KH wears something sexy but no touching allowed except foot and leg rubs
    * Satin slip nighty, Leather dress or skirt
@@ -45,9 +46,14 @@ Blindfolding LP can be useful for the following teases.
 
 #### Cage On
 
-* Caged unit and balls teasing
+* Caged unit and balls teasing. Stroking/Tapping/Shaking cage.
    * Hands
    * Leather Gloves
+ * Run hands over thighs and chest and avoid locked area
+ * Kiss and caress LP chest or abdomen while ignoring the cage
+ * knees or thighs to lightly press against the cage
+ * Make LP hold perfectly still while you stroke the cage lightly
+ * Blow warm air on caged area
  * Feather tease
  * Vibrator on cage and balls
  * Play with nipples
@@ -64,6 +70,8 @@ Blindfolding LP can be useful for the following teases.
    * silk scarf
    * panties
    * LP wears condom
+ * Run a single finger along the shaft, avoiding the sensitive tip
+ * Use a soft makeup brush to tease around their tip and shaft
  * Masturbation sleeve (fleshlight)
  * Vibrator on balls
  * Blowjob tease
