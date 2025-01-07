@@ -16,7 +16,7 @@ Teases where the focus is on the KH and her pleasure.
    * Going down on KH
    * KH on top straddling face (queening)
 * Give attention to KH breasts and nipples
-* KH wears something sexy but no touching allowed except Footrubs
+* KH wears something sexy but no touching allowed except foot and leg rubs
    * Satin slip nighty
    * Leather dress or skirt
 * Use dildo on KH
