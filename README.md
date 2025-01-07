@@ -41,7 +41,7 @@ KH can even watch TV or scroll phone during these activities.
 
 The following teases involve pleasuring the LP and getting him close to orgasm.
 
-Blindfolding and or lightly restraining LP can be useful for the following teases.
+Blindfolding LP can be useful for the following teases.
 
 #### Cage On
 
