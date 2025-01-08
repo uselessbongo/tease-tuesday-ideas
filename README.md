@@ -11,7 +11,10 @@ Teases where the focus is on the KH and her pleasure.
 
 * Give KH Full body massage
    * Naked
-   * Wear something sexy!!
+   * Wear something sexy
+      * satin slip dress
+      * bra/panties
+      * leather slip dress
 * Oral Sex for KH
    * Going down on KH
    * KH on top straddling face (queening)
