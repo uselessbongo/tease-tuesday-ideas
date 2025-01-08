@@ -73,6 +73,7 @@ Blindfolding LP can be useful for the following teases.
    * silk scarf
    * panties
    * LP wears condom
+ * Teasing with an iphone countdown timer
  * Run a single finger along the shaft, avoiding the sensitive tip
  * Use a soft makeup brush to tease around their tip and shaft
  * Masturbation sleeve (fleshlight)
@@ -83,6 +84,7 @@ Blindfolding LP can be useful for the following teases.
    * Leg Humps
    * Boots Humps
    * Titty Humps
+ * Instruct LP to masturbate self while being observed
  * LP licking pre-cum from teasing
 
 ### General Teasing
@@ -104,3 +106,4 @@ These can be used to mix things up, or if LP has an accidental orgasm at any poi
    * implements: crop / flogger / hand
 * Light ball spanking
 * Nipple pinching
+* tied up timeout
