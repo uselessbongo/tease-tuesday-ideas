@@ -30,7 +30,10 @@ Teases where the focus is on the KH and her pleasure.
 * Use vibrator on KH
 * KH sits in wand chair
 * Watch KH use vibrator or dildo
-* Intercourse - KH rides LP (This is probably a better Freaky Friday activity)
+* Intercourse - KH rides LP (Freaky Friday)
+   * LP not allowed to finish
+   * multiple condoms to desensitize
+   * numbing condoms
 * LP Wears a Dildo Harness and stays locked (Freaky Friday)
 * KH wants LP to dominate her (Freaky Friday)
 
