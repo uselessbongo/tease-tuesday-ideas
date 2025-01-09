@@ -18,7 +18,7 @@ Teases where the focus is on the KH and her pleasure.
       * stockings
 * Oral Sex for KH
    * Going down on KH
-   * KH on top straddling face (queening)
+   * KH on top straddling face (aka Queening)
    * KH instructs LP exactly how she likes oral (training)
 * Give attention to KH breasts and nipples
 * KH grinds and dry humps LP
@@ -64,7 +64,7 @@ Blindfolding LP can be useful for the following teases.
  * Feather tease
  * Vibrator on cage and balls
  * Play with nipples
- * Prostate Massage (Might be better as Freaky Friday)
+ * Prostate Massage (Freaky Friday)
    * prostate massager
    * exam glove finger
 
