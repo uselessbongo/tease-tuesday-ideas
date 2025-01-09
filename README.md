@@ -103,7 +103,8 @@ Blindfolding LP can be useful for the following teases.
 These can be used to mix things up, or if LP has an accidental orgasm at any point, or doesn't follow rules.
 
 * Light impact play / spanking
-   * implements: crop / flogger / hand
-* Light ball spanking
+   * implements: crop / paddle / flogger / hand
+* Light cock/ball spanking
+* wartenburg wheel (spikey wheel thing)
 * Nipple pinching
 * tied up timeout
