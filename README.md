@@ -15,6 +15,7 @@ Teases where the focus is on the KH and her pleasure.
       * satin slip dress
       * bra/panties
       * leather slip dress
+      * stockings
 * Oral Sex for KH
    * Going down on KH
    * KH on top straddling face (queening)
