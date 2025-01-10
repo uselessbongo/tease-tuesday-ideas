@@ -64,6 +64,7 @@ Blindfolding LP can be useful for the following teases.
  * Feather tease
  * Vibrator on cage and balls
  * Play with nipples
+ * Vibrating ring on cage/balls for amount of time
  * Prostate Massage (Freaky Friday)
    * prostate massager
    * exam glove finger
@@ -82,6 +83,7 @@ Blindfolding LP can be useful for the following teases.
  * Use a soft makeup brush to tease around their tip and shaft
  * Masturbation sleeve (fleshlight)
  * Vibrator on balls
+ * Vibrating ring on cock/balls for amount of time
  * Blowjob tease
  * KH on top grinding pussy on top of LP unlocked
  * Outercourse
