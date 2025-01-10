@@ -110,6 +110,6 @@ These can be used to mix things up, or if LP has an accidental orgasm at any poi
 * Light impact play / spanking
    * implements: crop / paddle / flogger / hand
 * Light cock/ball spanking
-* wartenburg wheel (spikey wheel thing)
+* wartenburg pin wheel (spikey wheel thing)
 * Nipple pinching
 * tied up timeout
