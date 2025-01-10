@@ -78,6 +78,9 @@ Blindfolding LP can be useful for the following teases.
    * silk scarf
    * panties
    * LP wears condom
+ * Reach around handjob
+   * hand over mouth
+   * gloved hand over mouth
  * Teasing with an iphone countdown timer
  * Run a single finger along the shaft, avoiding the sensitive tip
  * Use a soft makeup brush to tease around their tip and shaft
