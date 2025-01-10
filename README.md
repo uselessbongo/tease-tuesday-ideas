@@ -43,7 +43,7 @@ The goal is to increase the arousal level of the LP during his lock up period.
 The LP shall not have an orgasm during a teasing session unless authorized by the KH.
 
 These activities should be minimal effort for the KH.
-KH can even watch TV or scroll phone during these activities.
+Some activities are well suited for KH to watch TV or scroll phone.
 
 ### Physical Teasing LP
 
