@@ -115,3 +115,4 @@ These can be used to mix things up, or if LP has an accidental orgasm at any poi
 * wartenburg pin wheel (spikey wheel thing)
 * Nipple pinching
 * tied up timeout
+* gentle gloved hand over mouth breathplay
