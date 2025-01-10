@@ -83,6 +83,7 @@ Blindfolding LP can be useful for the following teases.
  * Masturbation sleeve (fleshlight)
  * Vibrator on balls
  * Blowjob tease
+ * KH on top grinding pussy on top of LP unlocked
  * Outercourse
    * Butt Humps
    * Leg Humps
