@@ -65,6 +65,7 @@ Blindfolding LP can be useful for the following teases.
  * Vibrator on cage and balls
  * Play with nipples
  * Vibrating ring on cage/balls for amount of time
+ * Tease cage and balls with feet or boots
  * Prostate Massage (Freaky Friday)
    * prostate massager
    * exam glove finger
@@ -93,6 +94,7 @@ Blindfolding LP can be useful for the following teases.
    * Butt Humps
    * Leg Humps
    * Boots Humps
+   * Feet
    * Titty Humps
  * Instruct LP to masturbate self while being observed
  * LP licking pre-cum from teasing
