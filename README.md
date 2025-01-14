@@ -9,34 +9,34 @@ The idea is these teases should either be KH focused or require minimal effort o
 
 Teases where the focus is on the KH and her pleasure.
 
-* Give KH Full body massage
+1. Give KH Full body massage
    * Naked
    * Wear something sexy
       * satin slip dress
       * bra/panties
       * leather slip dress
       * stockings
-* Oral Sex for KH
+2. Oral Sex for KH
    * Going down on KH
    * LP is blindfolded while going down on KH so he can only feel and smell her
    * KH on top straddling face (aka Queening)
    * KH instructs LP exactly how she likes oral (training)
-* Give attention to KH breasts and nipples
-* KH grinds and dry humps LP
-* Old fashioned makeout session
-* KH wears something sexy but no touching allowed except foot and leg rubs
+3. Give attention to KH breasts and nipples
+4. KH grinds and dry humps LP
+5. Old fashioned makeout session
+6. KH wears something sexy but no touching allowed except foot and leg rubs
    * Satin slip nighty, Leather dress or skirt
    * KH could blindfold LP so he can't even see her dressed
-* Use dildo on KH
-* Use vibrator on KH
-* KH sits in wand chair
-* Watch KH use vibrator or dildo
-* Intercourse - KH rides LP (Freaky Friday)
+7. Use dildo on KH
+8. Use vibrator on KH
+9. KH sits in wand chair
+10. Watch KH use vibrator or dildo
+11. Intercourse - KH rides LP (Freaky Friday)
    * LP not allowed to finish
    * multiple condoms to desensitize
    * numbing condoms
-* LP Wears a Dildo Harness and stays locked (Freaky Friday)
-* KH wants LP to dominate her (Freaky Friday)
+12. LP Wears a Dildo Harness and stays locked (Freaky Friday)
+13. KH wants LP to dominate her (Freaky Friday)
 
 ## Teasing Locked Partner (LP)
 
