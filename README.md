@@ -18,6 +18,7 @@ Teases where the focus is on the KH and her pleasure.
       * stockings
 * Oral Sex for KH
    * Going down on KH
+   * LP is blindfolded while going down on KH so he can only feel and smell her
    * KH on top straddling face (aka Queening)
    * KH instructs LP exactly how she likes oral (training)
 * Give attention to KH breasts and nipples
