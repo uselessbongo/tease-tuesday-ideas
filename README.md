@@ -16,6 +16,8 @@ Teases where the focus is on the KH and her pleasure.
       * bra/panties
       * leather slip dress
       * stockings
+      * boots
+      * gloves
 * Oral Sex for KH
    * Going down on KH
    * LP is blindfolded while going down on KH so he can only feel and smell her
